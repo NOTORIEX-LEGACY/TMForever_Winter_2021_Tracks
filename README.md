@@ -4,4 +4,4 @@
 
 <p><b>Played via Trackmania United: Forever</b></p>
 
-<p><b>WARNING!: SOME MAPS MAY REQUIRE UNLIMITED</b></p>
+<p><b>WARNING!: SOME MAPS MAY REQUIRE THE UNLIMITER MOD</b></p>
